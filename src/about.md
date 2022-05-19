@@ -3,7 +3,7 @@ https://www.youtube.com/channel/UCg85OH_Gs8T1JfI2YJEeNqA/about
 ```
 English will follows.
 
-クリエイティブVTuberグループ「ケイロミ共和国」の公式チャンネルです！
+クリエイティブVTuberグループ「ケイロミ共和国」の公式チャンネルです！🏞️🏞️🏞️
 ケイロミメンバー全体で立てた企画の配信を行ったり、動画が投稿されます🌟
 
 切り抜きやコラボ動画などの再生リストも要チェック！
