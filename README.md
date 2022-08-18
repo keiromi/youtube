@@ -50,5 +50,13 @@ YouTube：https://www.youtube.com/channel/UCh_-KzM5tCIfheBEYNqHVQA
 Twitter：https://twitter.com/YorushiroOru
 YouTube：https://www.youtube.com/c/yorushirooru
 
+▶ かなえ先生🐕📚
+Twitter：https://twitter.com/towanokanae1984
+YouTube：https://www.youtube.com/c/KanaeVCriminologist
+
+▶ 高遠頼
+Twitter：https://twitter.com/takatoh_life
+YouTube：https://www.youtube.com/channel/UC40s5z5yrd02Ngy8nQZXE5w
+
 －－－－－－－－－－－－－－－－－－－－－－－
 ```
